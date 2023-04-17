@@ -12,3 +12,12 @@ Add coupon FREE1GB
 
 Step 4:
 After payment completed please check your email (wait few minutes)
+
+
+Tutorial :
+https://www.youtube.com/watch?v=sfblFG4aHdQ
+Or
+https://www.youtube.com/watch?v=BhUeQxi3jco
+
+____
+Support email: premiumdownloader.net@gmail.com
