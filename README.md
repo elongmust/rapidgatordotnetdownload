@@ -1,7 +1,7 @@
 # Download rapidgator.net without create account and free
 Download vip rapidgator.net link, free download link in rapidgator.net without account
 
-![PREfiles get link](https://premiumdownloader.net/wp-content/uploads/2023/05/prefiles-premium.png)
+![PREfiles get link]([https://premiumdownloader.net/wp-content/uploads/2023/05/prefiles-premium.png](https://premiumdownloader.net/wp-content/uploads/2023/03/rapidgator-premium.png))
 
 Step 1:
 GO to site: https://premiumdownloader.net then click rapidgator icon link
